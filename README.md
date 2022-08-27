@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ola2nji
 - 👀 I’m interested in like minded individuals.
-- 🌱 I’m currently learning UX/UI
+- 🌱 I’m a UX/UI Designer
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
 
